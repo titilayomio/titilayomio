@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @titilayomio
-- 👀 I’m interested in ...robots?
+- 👀 I’m interested in ...robots
 - 🌱 I’m currently learning ...python and C
 - 💞️ I’m looking to collaborate on ...tbd
 - 📫 How to reach me ... titilayomii_ on instagram
